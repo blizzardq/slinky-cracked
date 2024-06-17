@@ -1,1 +1,1 @@
-download slinky-client - ghost client for minecraft.
+Java - Ghost Cheating. 
